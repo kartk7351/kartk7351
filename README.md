@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kartk7351
-- 👀 I’m interested in  Data Handling 
+- 👀 Good in  Data Handling 
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on  Various Projects regaring data 
 - 📫 How to reach me kartk7351@gmail.com
